@@ -1,4 +1,4 @@
-# Nick Erhardt
+# Nicholas Erhardt
 
 ## Mod 3 Deliverables:
 
