@@ -1,4 +1,4 @@
-# Post-Grad Job Search Action Plan Template
+# Post-Grad Job Search Action Plan Template for Nick Erhardt
 
 *This deliverable needs to be submitted to Meg in order to have post-grad job search support from her.*
 
